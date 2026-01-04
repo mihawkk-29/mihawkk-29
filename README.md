@@ -1,8 +1,8 @@
 - 👋 Hi, I’m aarun 
-- 👀 I’m interested in change the world
-- 🌱 I’m currently learning engineering
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me
+- 👀 I’m interested in hiking and swimming in the ocean 
+- 🌱 I’m currently doing something that teach me something
+- 💞️ I,m looking you yeah you 
+- 📫 You cant reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
